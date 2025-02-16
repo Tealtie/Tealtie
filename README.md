@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and games (specifically Pokémon, Minecraft and Roblox)
 - 🌱 I’m currently learning how to code :(
 - 💞️ I’m looking to collaborate on anything really:)
-- 📫 How to reach me aqibdeen51211@gmail.com or +447823689886
+- 📫 How to reach me: aqibdeen51211@gmail.com or +447823689886
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm new to this, I need help 😊
 
